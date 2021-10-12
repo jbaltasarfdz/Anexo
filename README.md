@@ -5,7 +5,6 @@ Hola chavales, soy vuestro jefe
 
 Buenas tardes equipo!!!
 
-
 Hola soy Jesús
 
 Hola soy CArlos
